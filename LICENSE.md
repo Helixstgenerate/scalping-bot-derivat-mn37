@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with scalping bot for derivatives secure Strategy | scalping & webhook-support, the #1 scalping bot for derivatives. Includes scalping and webhook-support for
 
 
 
